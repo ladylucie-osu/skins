@@ -1,5 +1,5 @@
 # pernilla's skins
-### updated 8/31/21
+### updated 9/1/21
 
 # default skin edit
 
@@ -16,3 +16,14 @@
 
 ## [- 「vaxei」- Kronii no Jikan](https://mega.nz/file/GigyCY6b#LYC-b0B8_4hjyRnTs5yYqpUYaqoyHeyeD53CvXmcEsM)
 ![](https://i.imgur.com/qB2ip65.jpg)
+
+# miku nakano edits
+
+## [- Miku Nakano «default»](https://mega.nz/file/SqJD3C6J#3jpYExYrJLihgvMSBIjJGS2aUKupi5jeXjrrwXHxol8)
+![](https://i.imgur.com/uwSgKam.jpg)
+
+## [- Miku Nakano «selyu»](https://mega.nz/file/fipSASDb#twlxxX6tfs3e54kthT_pBfbmSHaL43S8LqKi7hKdy44)
+![](https://i.imgur.com/QLajiml.jpg)
+
+## [- Miku Nakano «mania»](https://mega.nz/file/vypmhYCT#PON9nZEHhtqO44RUixpuA9nQTVdOSXn2m_aOjimEFkE)
+![](https://i.imgur.com/nhtVFKF.jpg)
