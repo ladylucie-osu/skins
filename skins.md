@@ -25,5 +25,11 @@
 ## [- Miku Nakano «selyu»](https://mega.nz/file/fipSASDb#twlxxX6tfs3e54kthT_pBfbmSHaL43S8LqKi7hKdy44)
 ![](https://i.imgur.com/QLajiml.jpg)
 
+# other modes
+
 ## [- Miku Nakano «mania»](https://mega.nz/file/vypmhYCT#PON9nZEHhtqO44RUixpuA9nQTVdOSXn2m_aOjimEFkE)
 ![](https://i.imgur.com/nhtVFKF.jpg)
+
+## [« prjct. X » (taiko + ctb)](https://mega.nz/file/qnpExB6R#vaDiljHv-Smc4OI_Jo-10i4PILXSHSqkkOOJwaqnzTs)
+![](https://i.imgur.com/SdYrte9.jpg)
+![](https://i.imgur.com/XxCSqqR.jpg)
