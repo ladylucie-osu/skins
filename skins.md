@@ -5,21 +5,29 @@
 
 ## whitecat 2.1 edits
 
-### [-  《default》 WhiteCat 2.1](https://mega.nz/file/yrBEjBZS#CUUJh5yqtsJEMBADgkyAlC3MPln-zc2jxTie3F-vRm4)
-![](https://i.imgur.com/LBs8QKt.jpg)
+### [-  《default》 WhiteCat 2.1](https://mega.nz/file/3ugg0DIL#Cgdh3P_tyFxNgbJxp-DMwxxNNzmhoYp-DRPBJeCpNBY)
+![](https://i.imgur.com/0f3qtrr.png)
 
-### [-  《vaxei》 WhiteCat 2.1](https://mega.nz/file/n25TiaYT#BsmgUrMp2o65F3o3y5JFJKuyX6tgg2NsBS9sMdt-0dw)
-![](https://i.imgur.com/kM8064M.jpg)
+### [-  《vaxei》 WhiteCat 2.1](https://mega.nz/file/O64AABCb#9TXHgmrfO54BhQzm2Xfm18ifvZOZ5G90TnWDULiVOW4)
+![](https://i.imgur.com/cSR3vEp.png)
+
+## BPNO 1.2 edit
+
+### [- bpno 1.2 mania](https://mega.nz/file/OjwESDiK#sHTsQR5pVUl_2DmESGQuvlIsuMxs7Sy4BE89U6SKQZI)
+![](https://i.imgur.com/berUZnD.png)
 
 ## default skin edit (std + ctb)
 
 ### [- default edit](https://mega.nz/file/qjpzDAAY#HFN9Da97NoD2908GG3G-ny80-dtmnL_PksB7pgORwFs)
-![](https://i.imgur.com/yi6cWzJ.jpg)
+![](https://i.imgur.com/1P0CFCN.png)
 
 ## owotuna edit (std)
 
+### [-tuna instafade default](https://mega.nz/file/275WVJRI#AZU7MOUee5diTgjRmBw5W50fR-JmeCUej06C_MLOGoY)
+![](https://i.imgur.com/53V3l61.png)
+
 ### [- tuna selyu edit](https://mega.nz/file/jnhByKgC#PjAt0zqDdzubhHFEDIEtt3XC1vWoOH5ozmS6OV_Ykpc)
-![](https://i.imgur.com/f7oPOpQ.jpg)
+![](https://i.imgur.com/FQStWlX.png)
 
 # old skins
 
@@ -41,6 +49,3 @@
 
 ### [- Miku Nakano «selyu»](https://mega.nz/file/fipSASDb#twlxxX6tfs3e54kthT_pBfbmSHaL43S8LqKi7hKdy44)
 ![](https://i.imgur.com/QLajiml.jpg)
-
-### [- Miku Nakano «mania»](https://mega.nz/file/vypmhYCT#PON9nZEHhtqO44RUixpuA9nQTVdOSXn2m_aOjimEFkE)
-![](https://i.imgur.com/nhtVFKF.jpg)
