@@ -23,7 +23,7 @@
 
 ## owotuna edit (std)
 
-### [-tuna instafade default](https://mega.nz/file/275WVJRI#AZU7MOUee5diTgjRmBw5W50fR-JmeCUej06C_MLOGoY)
+### [- tuna instafade default](https://mega.nz/file/275WVJRI#AZU7MOUee5diTgjRmBw5W50fR-JmeCUej06C_MLOGoY)
 ![](https://i.imgur.com/53V3l61.png)
 
 ### [- tuna selyu edit](https://mega.nz/file/jnhByKgC#PjAt0zqDdzubhHFEDIEtt3XC1vWoOH5ozmS6OV_Ykpc)
