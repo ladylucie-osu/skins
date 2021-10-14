@@ -13,5 +13,8 @@
 ### [- tuna seoul edit](https://drive.google.com/file/d/1FPedwhgC3KH1o0TeTh8a6g7f4AvRO6hN/view?usp=sharing) / [map link](https://osu.ppy.sh/beatmapsets/1416051#osu/2918249)
 ![](https://i.imgur.com/TmX5qnm.png)
 
-### [- tuna mania](https://drive.google.com/file/d/1c-28Qb3hoVTPnScCvB7Cuj-eYtdXoD8s/view?usp=sharing) / [map link](https://osu.ppy.sh/beatmapsets/1101599#mania/2301343)
+### [- tuna mania 4k](https://drive.google.com/file/d/1LiigPYKT4pWxcrhwAW7nWaIczLfe4c2s/view?usp=sharing) / [map link](https://osu.ppy.sh/beatmapsets/1101599#mania/2301343)
 ![](https://i.imgur.com/SklLsDT.png)
+
+### [- tuna mania 4k](https://drive.google.com/file/d/1JfaPXTPjke3ePbEUlLSQST-OG3KOY5q2/view?usp=sharing) / [map link](https://osu.ppy.sh/beatmapsets/650415#mania/1684161)
+![](https://i.imgur.com/g2UBWv7.png)
