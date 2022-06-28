@@ -1,5 +1,4 @@
-# XooMoon edit skins
-## updated 12/28/21
+# This repository is obsolete and will no longer be updated.
 
 ## [(Default)](https://drive.google.com/file/d/1CA3lUf3YwUBEEOlWePqFONk0IEBx2ALx/view?usp=sharing)
 ![](https://i.imgur.com/FJ5EBMu.png)
